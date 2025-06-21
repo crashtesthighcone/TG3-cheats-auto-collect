@@ -1,0 +1,1 @@
+# TG3-cheats-auto-collect
